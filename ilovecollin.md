@@ -1,1 +1,1 @@
-ik hou echt van collin
+ik hou echt veel van collin
